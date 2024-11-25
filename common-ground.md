@@ -5,8 +5,8 @@ Nikita - 2 Siblings each \
 Nisha - Lives in melbourne \
 Petr - No kids \
 Pooja - Follows the cricket \
-Priyanka - 
+Priyanka - Loves cooking \
 Rhea - We're both in realtionships \
 Shirdheen - We both live in Melbourne \
 Shireen - Both live in Melbourne \
-Shreyashi - Both like coffee \
+Shreyashi - Both like coffee 
